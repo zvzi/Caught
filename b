@@ -1,5 +1,7 @@
 - honorable mentions
 
+me being listed legendary prison player; https://media.discordapp.net/attachments/820518762334650378/979225880847085618/unknown.png?width=397&height=248
+
 gangsuki - like a brother to me
 WokeAfrican - also like a brother to me
 Aphixe 
@@ -14,5 +16,7 @@ girlyfazos
 far - also a listing owner
 ISoldYouOnEbay
 AimGodsChampion/timedartist1845
+
+
 
 all the best, lootsu
